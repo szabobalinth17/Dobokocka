@@ -1,1 +1,1 @@
-[apk](https://github.com/szabobalinth17/Dobokocka/releases/tag/v002)
+[apk](https://median.co/share/dqmqxo#apk)
